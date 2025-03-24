@@ -1,0 +1,1 @@
+Dawid ty kurwo
